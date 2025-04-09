@@ -2,7 +2,7 @@
 
 If you're struggling with sneezing, itching, watery eyes, or nasal congestion, you're not alone. Allergies affect millions of people every year. Fortunately, there are plenty of effective solutions available without a prescription. In this guide, we’ll break down the **best over-the-counter allergy medications** and how they can help you feel better quickly.
 
-> 🎥 **Prefer video? Watch our quick breakdown of the top allergy medications here:** [https://allergies.lanauke.com](https://allergies.lanauke.com)
+> 🎥 **Prefer video? Watch our quick breakdown of the top allergy medications here:** [Watch now on this link](https://allergies.lanauke.com)
 
 ---
 
@@ -75,7 +75,7 @@ Always read the label and consult a pharmacist or doctor if unsure.
 Living with allergies doesn’t have to be a daily struggle. With the right **OTC allergy medication**, you can manage your symptoms and improve your quality of life. Whether you need fast relief or long-term protection, the **best over-the-counter allergy medications** listed above can make a big difference.
 
 📺 **Watch our video guide for more details:**  
-👉 [https://allergies.lanauke.com](https://allergies.lanauke.com)
+👉 [Watch now on this link](https://allergies.lanauke.com)
 
 ---
 
